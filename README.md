@@ -7,7 +7,10 @@ No, Its Completely Safe To Use
 ## KEN ON TOP
 
 ## CONTACT 
-If You Have any issue regarding this cloner or my any other tools feel free to contact me at - 
+If You Have any issue regarding this cloner or my any other tools feel free to contact me at
+
 [Discord Server](https://discord.gg/QNfmMqWT5Y)
+
 [Discord ID](https://discord.com/channels/@me/1025449053821083711)
+
 [Mail](itzmeken_official@proton.me)
